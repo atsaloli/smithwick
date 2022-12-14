@@ -6,6 +6,11 @@ before_script:
 pages:
   script:
     - echo hello world
+    - npm install -g markdown-styles -y
+    - generate-md  --input ./ --output ./public --layout mixu-bootstrap-2col
+    - cd public
+    - pwd
+    - ls
   artifacts:
     paths:
       # The folder that contains the files to be exposed at the Page URL
