@@ -113,7 +113,7 @@ Misc:
 Newspapers/magazines/newsletters:
 - [Burnet Bulletin](https://www.burnetbulletin.com/Calendar)
 - [DailyTrib.com](https://www.dailytrib.com/)
-- Burnet County [Master Gardners' "Dig it" newsletter](https://www.burnetcountyhighlandlakesmastergardener.org/the-dig-it-newsletter.html)
+- [Burnet County Master Gardners' "Dig it" newsletter](https://www.burnetcountyhighlandlakesmastergardener.org/the-dig-it-newsletter.html)
 
 ## Facebook Groups
 
