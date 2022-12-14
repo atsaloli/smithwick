@@ -140,3 +140,9 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 #### Neighborhood groups
 - [Cottonwood Shores Good Neighbors](https://www.facebook.com/groups/3168915280057120)
 - [Oatmeal TX Neighbors](https://www.facebook.com/groups/1086689371701409)
+
+#### Jewish Austin
+
+- [BlueKnot - Jewish Tech Professionals](https://www.facebook.com/groups/BlueKnot/)
+- https://www.facebook.com/groups/InterfaithParentingCircle
+
