@@ -11,6 +11,7 @@ pages:
     - cd public
     - pwd
     - ls
+    - mv smithwick.html index.html
   artifacts:
     paths:
       # The folder that contains the files to be exposed at the Page URL
