@@ -1,12 +1,16 @@
-# Alex's list of local resources and events for the Greater Smithwick area
+# Resources and Events in the Greater Smithwick area
 
-## Event Calendars
+Author: Alex Tsalolikhin [Facebook](https://www.facebook.com/atsaloli) | [LinkedIn](https://www.linkedin.com/in/atsaloli/)
+
+## Events
+
+### Calendars
 
 - [Burnet Chamber of Commerce events calendar](https://www.burnetchamber.org/event/)
 - [EarthShare Texas events calendar](https://earthshare-texas.org/events/)
 - [Live music roundup](https://www.101highlandlakes.com/news/highland-lakes-live-music-roundup)
 
-## Recurring Events
+### Recurring Events
 
 - January
   - [Burnet County Youth Livestock Show](https://www.burnetcountylivestockshow.com/)
