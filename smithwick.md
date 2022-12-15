@@ -68,12 +68,14 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Dan Pogue](http://www.danpoguesculpture.com/) 7670 Hwy 1431 East     Marble Falls Texas 78654     Phone: 830-220-9325
 - [Bunkhouse Art Gallery](https://www.bunkhousegallery.com/) 573 Old Spicewood Rd, Round Mountain, TX 78663. Phone 512-517-3453
 
-### Nature Preserves
+### Nature Preserves / Parks
 - [Bamberger Ranch](https://www.bambergerranch.org/)
 - Circle Acres
 - [Westcave Outdoor Discovery Center](https://www.westcave.org/)
 - [Balcones Canyonlands National Wildlife Refuge](http://www.fws.gov/refuge/balcones_canyonlands/) (512) 339-9432
 - [Eckert James River Bat Cave Preserve in Mason County](https://www.nature.org/en-us/get-involved/how-to-help/places-we-protect/eckert-james-river-bat-cave-preserve/)
+- [Canyon of the Eagles Nature Park & Resort](https://canyonoftheeagles.com/) - well-behaved dogs on leash are welcome. It's near [Vanishing Texas River Cruise](https://www.vtrc.com/).
+
 
 ### Hiking
 - Shaffer Bend
