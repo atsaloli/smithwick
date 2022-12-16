@@ -76,6 +76,9 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Eckert James River Bat Cave Preserve in Mason County](https://www.nature.org/en-us/get-involved/how-to-help/places-we-protect/eckert-james-river-bat-cave-preserve/)
 - [Canyon of the Eagles Nature Park & Resort](https://canyonoftheeagles.com/) - well-behaved dogs on leash are welcome. It's near [Vanishing Texas River Cruise](https://www.vtrc.com/).
 
+### Exotic Animal Parks / Zoos
+- [Reptilandia Reptile Lagoon](https://www.facebook.com/Reptilandiareptilelagoon) is located at 1859 U.S. 281 North in Johnson City. Open Fri-Sun 10 a.m.-5 p.m. Admission is $10.
+- [Exotic Resort Zoo](https://www.zooexotics.com/)
 
 ### Hiking
 - Shaffer Bend
