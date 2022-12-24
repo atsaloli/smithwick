@@ -16,6 +16,8 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
   - [Burnet County Youth Livestock Show](https://www.burnetcountylivestockshow.com/)
   - [Llano County Youth Livestock Show](https://www.facebook.com/llano4H/)
   - [Winter Powwow](https://www.facebook.com/Texas-Indian-Heritage-Association-TIHA-191395009943/events/?ref=page_internal)
+- February
+  - [Highland Lakes Quilt Guild Festival](https://www.hlqg.org/quilt-show.html)
 - March
   - [Bluebonnet Airshow](https://www.bluebonnetairshow.com/)
   - [Llano Earth Art Fest](https://www.llanoearthartfest.org/)
