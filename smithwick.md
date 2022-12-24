@@ -51,6 +51,7 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
   - [Main St. Car Show](https://highlandlakeskiwanis.org/car-show)
   - [Texas Renaissance Festival](https://www.texrenfest.com/)
   - [Castell General Store Barbecue Cook-Off](https://www.llanochamber.org/llano-events/castell-general-store-chili-cook-off-7jz4j-mzdcc-cezxn)
+  - [St. John's Parish Festival](https://stjohnsmarblefalls.org/parish-festival)
 lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00 PM
 - November
   - [Dripping Springs Fall Classic](https://www.dsagboosters.org/) - agricultural animal competition
