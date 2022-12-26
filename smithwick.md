@@ -127,6 +127,10 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [DailyTrib.com](https://www.dailytrib.com/)
 - [Burnet County Master Gardners' "Dig it" newsletter](https://www.burnetcountyhighlandlakesmastergardener.org/the-dig-it-newsletter.html)
 
+### Mushrooms
+- [Enchanted Mushrooms](https://www.enchantedmushrooms.farm) gourmet artisan mushroom farm in Llano. Every Sunday 10:00-2:00 at Pedernales Farmers Market,
+23526 TX HWY-71, Spicewood, TX 78669
+
 ### Facebook Groups
 
 #### Gardening and foraging
