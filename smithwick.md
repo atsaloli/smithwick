@@ -65,19 +65,25 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 
 ## Resources
 
+### 4H
+- Burnet 4H Horse Club: [Facebook](https://www.facebook.com/Burnet4Hhorseclub/) | [Website](https://www.burnet4hhorseclub.org/)
+- [Burnet County 4-H - county page](https://burnet.agrilife.org/4-h/)
+- [Burnet County 4-H - Facebook](https://www.facebook.com/Burnetco4H)
+
+
 ### Art Galleries
 - [Lopez Hill](https://www.lopezhill.com/) in Spicewood -- no pets -- open Thursday - Saturday from 10 am to 6 pm -- 830-220-9749
 - [Museo Benini](https://www.museobenini.com/) 3440 East FM 2147, Marble Falls, Texas 78654 - 830.693.2147 - 830.385.1471
 - [Dan Pogue](http://www.danpoguesculpture.com/) 7670 Hwy 1431 East     Marble Falls Texas 78654     Phone: 830-220-9325
 - [Bunkhouse Art Gallery](https://www.bunkhousegallery.com/) 573 Old Spicewood Rd, Round Mountain, TX 78663. Phone 512-517-3453
 
-### Nature Preserves / Parks
-- [Bamberger Ranch](https://www.bambergerranch.org/)
-- Circle Acres
-- [Westcave Outdoor Discovery Center](https://www.westcave.org/)
-- [Balcones Canyonlands National Wildlife Refuge](http://www.fws.gov/refuge/balcones_canyonlands/) (512) 339-9432
-- [Eckert James River Bat Cave Preserve in Mason County](https://www.nature.org/en-us/get-involved/how-to-help/places-we-protect/eckert-james-river-bat-cave-preserve/)
-- [Canyon of the Eagles Nature Park & Resort](https://canyonoftheeagles.com/) - well-behaved dogs on leash are welcome. It's near [Vanishing Texas River Cruise](https://www.vtrc.com/).
+### ASL
+- [Deaf Artisan Market](https://www.facebook.com/deafartisanmarketday/)
+- [ASL Practice Pals](https://www.facebook.com/groups/285843508525191/)
+- [Austin ASL Social](https://www.facebook.com/groups/austinasl) <-- Epoch Coffee Meetup
+- [Austin Deaf Club](https://www.austindeafclub.org/)
+- [ASL Night Out](https://www.facebook.com/groups/405806173155173)
+- [Texas Association of the Deaf](https://www.facebook.com/groups/877091289068221)
 
 ### Exotic Animal Parks / Zoos
 - [Reptilandia Reptile Lagoon](https://www.facebook.com/Reptilandiareptilelagoon) is located at 1859 U.S. 281 North in Johnson City. Open Fri-Sun 10 a.m.-5 p.m. Admission is $10.
@@ -89,31 +95,8 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Enchanted Rock in Fredricksburg](https://tpwd.texas.gov/state-parks/enchanted-rock) - dogs allowed on leash on Loop Trail (4.5 miles). Bring drinking water.
 - [Schulle Canyon Natural Area](https://naturerocksaustin.org/greenspace/schulle-canyon-natural-area) in San Marcos is a 21-acre area of natural parkland with oak, elm and Bois d’arc trees. A ½-mile, six-foot wide accessible trail of crushed limestone forms the Virginia Witte Way trail. The natural area is listed as the Heart of Texas East #61 wildlife trail. Birds viewed here include Kinglets, Thrushes, Wrens, Chickadees and Cardinals. A great site for the beginner birder or person with limited mobility.
 
-### Non-profits
-- [Highland Lakes Canine Rescue](https://www.highlandlakescaninerescue.org/)
-
-### Service Providers
-- [Hill Country Hedgehogs and Pet Boarding](https://www.hillcountryhedgehogsandpetboarding.com/)
-- Burnet County Reuse and Recycle Center / Waste Transfer Station - 2411 Ranch Road 963, Burnet, Texas 78611. Phone: 737-747-6000. Hours:  Monday-Friday 7am - 4pm
-- [Bloodhound Wildlife Management](https://www.bloodhoundwildlifemanagement.com/)
-
-### ASL
-- [Deaf Artisan Market](https://www.facebook.com/deafartisanmarketday/)
-- [ASL Practice Pals](https://www.facebook.com/groups/285843508525191/)
-- [Austin ASL Social](https://www.facebook.com/groups/austinasl) <-- Epoch Coffee Meetup
-- [Austin Deaf Club](https://www.austindeafclub.org/)
-- [ASL Night Out](https://www.facebook.com/groups/405806173155173)
-- [Texas Association of the Deaf](https://www.facebook.com/groups/877091289068221)
-
-### Russian
-- [Austin Russian Theatre](https://austinrussiantheatre.org/)
-- [Russian Cultural Center](https://russianaustin.com/)
-- [Borderless European Market (BEM)](https://www.bemaustin.com/)
-
-### 4H
-- Burnet 4H Horse Club: [Facebook](https://www.facebook.com/Burnet4Hhorseclub/) | [Website](https://www.burnet4hhorseclub.org/)
-- [Burnet County 4-H - county page](https://burnet.agrilife.org/4-h/)
-- [Burnet County 4-H - Facebook](https://www.facebook.com/Burnetco4H)
+### Horse riding
+- [Thunder Horse Outfitters](https://thunderhorseoutfitters.com/) $65 for 1.5 hour lesson, at [Reveille Park Ranch](https://www.rprtexas.com/)
 
 ### Misc
 - [Horseshoe Bay Cultural Enrichment Society](https://hsbenrichment.org/)
@@ -122,14 +105,36 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [VFW Marble Falls](https://www.facebook.com/VFWPost10376/) Canteen: 7 days, 12pm-11pm / Karaoke: Fri's @ 7pm / Live Music on Saturdays / Taco Tuesdays
 - [HILL COUNTRY LAVENDER FARM](https://www.hillcountrylavender.com/) Free.  Thur - Sat  10 AM - 4 PM. 8241 FM 165, BLANCO, TX 78606. Pets ok (on leash).
 
+### Mushrooms
+- [Enchanted Mushrooms](https://www.enchantedmushrooms.farm) gourmet artisan mushroom farm in Llano. Every Sunday 10:00-2:00 at Pedernales Farmers Market,
+23526 TX HWY-71, Spicewood, TX 78669
+
+
+### Nature Preserves / Parks
+- [Bamberger Ranch](https://www.bambergerranch.org/)
+- Circle Acres
+- [Westcave Outdoor Discovery Center](https://www.westcave.org/)
+- [Balcones Canyonlands National Wildlife Refuge](http://www.fws.gov/refuge/balcones_canyonlands/) (512) 339-9432
+- [Eckert James River Bat Cave Preserve in Mason County](https://www.nature.org/en-us/get-involved/how-to-help/places-we-protect/eckert-james-river-bat-cave-preserve/)
+- [Canyon of the Eagles Nature Park & Resort](https://canyonoftheeagles.com/) - well-behaved dogs on leash are welcome. It's near [Vanishing Texas River Cruise](https://www.vtrc.com/).
+
 ### Newspapers/magazines/newsletters
 - [Burnet Bulletin](https://www.burnetbulletin.com/Calendar)
 - [DailyTrib.com](https://www.dailytrib.com/)
 - [Burnet County Master Gardners' "Dig it" newsletter](https://www.burnetcountyhighlandlakesmastergardener.org/the-dig-it-newsletter.html)
 
-### Mushrooms
-- [Enchanted Mushrooms](https://www.enchantedmushrooms.farm) gourmet artisan mushroom farm in Llano. Every Sunday 10:00-2:00 at Pedernales Farmers Market,
-23526 TX HWY-71, Spicewood, TX 78669
+### Non-profits
+- [Highland Lakes Canine Rescue](https://www.highlandlakescaninerescue.org/)
+
+### Russian
+- [Austin Russian Theatre](https://austinrussiantheatre.org/)
+- [Russian Cultural Center](https://russianaustin.com/)
+- [Borderless European Market (BEM)](https://www.bemaustin.com/)
+
+### Service Providers
+- [Hill Country Hedgehogs and Pet Boarding](https://www.hillcountryhedgehogsandpetboarding.com/)
+- Burnet County Reuse and Recycle Center / Waste Transfer Station - 2411 Ranch Road 963, Burnet, Texas 78611. Phone: 737-747-6000. Hours:  Monday-Friday 7am - 4pm
+- [Bloodhound Wildlife Management](https://www.bloodhoundwildlifemanagement.com/)
 
 ### Facebook Groups
 
