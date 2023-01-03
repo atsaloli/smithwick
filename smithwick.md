@@ -94,7 +94,7 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 
 ### Service Providers
 - [Hill Country Hedgehogs and Pet Boarding](https://www.hillcountryhedgehogsandpetboarding.com/)
-- [Burnet County Reuse and Recycle Center](https://www.burnetchamber.org/venue/burnet-county-reuse-and-recycle-center/)
+- Burnet County Reuse and Recycle Center / Waste Transfer Station - 2411 Ranch Road 963, Burnet, Texas 78611. Phone: 737-747-6000. Hours:  Monday-Friday 7am - 4pm
 - [Bloodhound Wildlife Management](https://www.bloodhoundwildlifemanagement.com/)
 
 ### ASL
