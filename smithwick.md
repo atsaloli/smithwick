@@ -136,9 +136,9 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - Burnet County Reuse and Recycle Center / Waste Transfer Station - 2411 Ranch Road 963, Burnet, Texas 78611. Phone: 737-747-6000. Hours:  Monday-Friday 7am - 4pm
 - [Bloodhound Wildlife Management](https://www.bloodhoundwildlifemanagement.com/)
 
-### Facebook Groups
+## Facebook Groups
 
-#### Gardening and foraging
+### Gardening and foraging
 - [Highland Lakes Master Naturalist Chapter](https://txmn.org/highlandlakes/)
 - [Central Texas Mycological Society](https://www.facebook.com/groups/321374918516033?sorting_setting=CHRONOLOGICAL)
 - [Texas Foraging Community](https://www.facebook.com/groups/1774614766085041?sorting_setting=CHRONOLOGICAL)
@@ -147,19 +147,13 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Williamson County Texas Master Gardeners Association](https://www.facebook.com/wctxmga/?sorting_setting=CHRONOLOGICAL)
 - [Austin Organic Gardeners](https://www.facebook.com/groups/588677437954604/)
 
-#### For sale
+### For sale
 - [HILL COUNTRY SWAP, SELL, AND BARTER](https://www.facebook.com/groups/494887923984263)
 - [Hill Country Exchange](https://www.facebook.com/groups/538486146291148)
 - [Burnet County Help/Work Wanted](https://www.facebook.com/groups/483357431789837/)
 - [Bertram buy, sell, trade](https://www.facebook.com/groups/562474424271932)
 - [Hill Country Land For Sale](https://www.facebook.com/groups/143888342913536/)
 
-#### Neighborhood groups
+### Neighborhood groups
 - [Cottonwood Shores Good Neighbors](https://www.facebook.com/groups/3168915280057120)
 - [Oatmeal TX Neighbors](https://www.facebook.com/groups/1086689371701409)
-
-#### Jewish Austin
-
-- [BlueKnot - Jewish Tech Professionals](https://www.facebook.com/groups/BlueKnot/)
-- https://www.facebook.com/groups/InterfaithParentingCircle
-
