@@ -125,6 +125,7 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 
 ### Non-profits
 - [Highland Lakes Canine Rescue](https://www.highlandlakescaninerescue.org/)
+- [Austin Steam Train Association](https://www.austinsteamtrain.org/)
 
 ### Russian
 - [Austin Russian Theatre](https://austinrussiantheatre.org/)
