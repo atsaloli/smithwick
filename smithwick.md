@@ -136,6 +136,9 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - Burnet County Reuse and Recycle Center / Waste Transfer Station - 2411 Ranch Road 963, Burnet, Texas 78611. Phone: 737-747-6000. Hours:  Monday-Friday 7am - 4pm
 - [Bloodhound Wildlife Management](https://www.bloodhoundwildlifemanagement.com/)
 
+### Marble Falls govt
+- [Marble Falls Parks and Recreation](https://marblefallsrecreation.com/)
+
 ## Facebook Groups
 
 ### Gardening and foraging
