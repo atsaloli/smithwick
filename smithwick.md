@@ -25,6 +25,7 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
   - [Wiener Dog Races in Buda](https://budalions.com/)
   - Lampasas Riata Roundup (Rodeo) at 2351 FM 580, Lampasas, TX
   - [Wildflower 5K in Fredricksburg in April](https://www.raceentry.com/fredericksburg-wildflower-5k-and-10k/race-information)
+  - [Shoot for Coop](https://shootforcoop.com/) Smithwick
 - May
   - [Castell General Store Testicle Festival](https://www.llanochamber.org/llano-events/castell-general-store-chili-cook-off-7jz4j) in Llano County. 3rd weekend in May -- Saturday, May 20, 2023, from 9 a.m. to 5 p.m.
   - [Dripping Springs Fair and Rodeo](https://www.cityofdrippingsprings.com/fair-rodeo) - Memorial Day Weekend
@@ -131,6 +132,10 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Austin Russian Theatre](https://austinrussiantheatre.org/)
 - [Russian Cultural Center](https://russianaustin.com/)
 - [Borderless European Market (BEM)](https://www.bemaustin.com/)
+
+### Jewish
+- [Congregation Agudas Achim](https://theaustinsynagogue.org/) - Conservative
+- [Texas Hillel](https://texashillel.org) - Community center for the 4,000+ Jewish students at The University of Texas at Austin
 
 ### Service Providers
 - [Hill Country Hedgehogs and Pet Boarding](https://www.hillcountryhedgehogsandpetboarding.com/)
