@@ -136,6 +136,8 @@ Located at 3630 Park Road 4 West near Burnet.
 
 Daily entrance is $7 for ages 13 and older and free for children 12 and younger.
 
+Well-behaved dogs on a leash are welcome at all programs except night hikes.
+
 - [Cowboy Coffee](https://tpwd.texas.gov/calendar/inks-lake/regular-programs/cowboy-coffee)
 - [Guided Nature Hike](https://tpwd.texas.gov/calendar/inks-lake/regular-programs/guided-nature-hike)
 
