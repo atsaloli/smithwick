@@ -128,6 +128,26 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Highland Lakes Canine Rescue](https://www.highlandlakescaninerescue.org/)
 - [Austin Steam Train Association](https://www.austinsteamtrain.org/)
 
+### Texas Parks and Wildlife
+
+#### Inks Lake State Park
+
+Located at 3630 Park Road 4 West near Burnet.
+
+Daily entrance is $7 for ages 13 and older and free for children 12 and younger.
+
+- [Cowboy Coffee](https://tpwd.texas.gov/calendar/inks-lake/regular-programs/cowboy-coffee)
+- [Guided Nature Hike](https://tpwd.texas.gov/calendar/inks-lake/regular-programs/guided-nature-hike)
+
+#### Longhorn Cavern State Park
+
+[website](https://visitlonghorncavern.com/)
+
+#### ENCHANTED ROCK STATE NATURAL AREA
+
+- [Guided Summit Hike](https://tpwd.texas.gov/calendar/enchanted-rock/guided-summit-hike/) - No pets!
+
+
 ### Russian
 - [Austin Russian Theatre](https://austinrussiantheatre.org/)
 - [Russian Cultural Center](https://russianaustin.com/)
