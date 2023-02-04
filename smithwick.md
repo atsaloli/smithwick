@@ -22,6 +22,7 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
   - [Bluebonnet Airshow](https://www.bluebonnetairshow.com/)
   - [Llano Earth Art Fest](https://www.llanoearthartfest.org/)
 - April
+  - [Llano Fiddle Fest](http://www.llanofiddlefest.com/) - no pets, service animals only, free admission
   - [Wiener Dog Races in Buda](https://budalions.com/)
   - Lampasas Riata Roundup (Rodeo) at 2351 FM 580, Lampasas, TX
   - [Wildflower 5K in Fredricksburg in April](https://www.raceentry.com/fredericksburg-wildflower-5k-and-10k/race-information)
