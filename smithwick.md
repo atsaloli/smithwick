@@ -157,7 +157,15 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Borderless European Market (BEM)](https://www.bemaustin.com/)
 
 ### Jewish
-- [Congregation Agudas Achim](https://theaustinsynagogue.org/) - Conservative
+- [Congregation Shir Ami](https://shir-ami.com/) - Reform - 3315 El Salido Pkwy, Cedar Park, TX 78613 - closest to Smithwick
+- [Temple Beth Shalom](http://www.bethshalomaustin.org/) - Reform - 7300 Hart Ln, Austin, TX 78731
+- [Congregation Agudas Achim](https://theaustinsynagogue.org/) - Conservative - 7300 Hart Ln, Austin, TX 78731
+- [Congregation Shalom Rav](http://shalomravaustin.com/) - Reconstructionist and Renewal - 7300 Hart Ln, Austin, TX 78731
+  - [Shalom Rav on Facebook](https://www.facebook.com/CongregationShalomRav/)
+- [Congregation Beth El](https://bethelaustin.org/) - Conservative - 8902 Mesa Dr, Austin, TX 78759
+  - [Beth El on Facebook](https://www.facebook.com/ShirAmiTX/)
+- [Congregation Tiferet Israel](https://www.tiferetaustin.org/) - Orthodox - 7300 Hart Ln, Austin, TX 78731
+- [Congregation Beth Israel](https://bethisrael.org/) - Reform - 3901 Shoal Creek Blvd, Austin, TX 78756
 - [Texas Hillel](https://texashillel.org) - Community center for the 4,000+ Jewish students at The University of Texas at Austin
 
 ### Service Providers
