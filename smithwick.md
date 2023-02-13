@@ -7,6 +7,7 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
 ### Calendars
 
 - [Burnet Chamber of Commerce events calendar](https://www.burnetchamber.org/event/)
+- [Bertram Chamber of Commerce events calendar](https://www.bertramchamber.com/events)
 - [EarthShare Texas events calendar](https://earthshare-texas.org/events/)
 - [Live music roundup](https://www.101highlandlakes.com/news/highland-lakes-live-music-roundup)
 
@@ -118,7 +119,7 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Westcave Outdoor Discovery Center](https://www.westcave.org/)
 - [Balcones Canyonlands National Wildlife Refuge](http://www.fws.gov/refuge/balcones_canyonlands/) (512) 339-9432
 - [Eckert James River Bat Cave Preserve in Mason County](https://www.nature.org/en-us/get-involved/how-to-help/places-we-protect/eckert-james-river-bat-cave-preserve/)
-- [Canyon of the Eagles Nature Park & Resort](https://canyonoftheeagles.com/) - well-behaved dogs on leash are welcome. It's near [Vanishing Texas River Cruise](https://www.vtrc.com/).
+- [Canyon of the Eagles Nature Park & Resort](https://canyonoftheeagles.com/) - well-behaved dogs on leash are welcome. It's near [Vanishing Texas River Cruise](https://www.vtrc.com/).  $10 per person park fee. Guided nature hike with Master Naturalist Willard Horn on Saturdays at 10:00 AM.
 
 ### Newspapers/magazines/newsletters
 - [Burnet Bulletin](https://www.burnetbulletin.com/Calendar)
