@@ -120,6 +120,7 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Balcones Canyonlands National Wildlife Refuge](http://www.fws.gov/refuge/balcones_canyonlands/) (512) 339-9432
 - [Eckert James River Bat Cave Preserve in Mason County](https://www.nature.org/en-us/get-involved/how-to-help/places-we-protect/eckert-james-river-bat-cave-preserve/)
 - [Canyon of the Eagles Nature Park & Resort](https://canyonoftheeagles.com/) - well-behaved dogs on leash are welcome. It's near [Vanishing Texas River Cruise](https://www.vtrc.com/).  $10 per person park fee. Guided nature hike with Master Naturalist Willard Horn on Saturdays at 10:00 AM.
+- [Hamilton Pool Preserve](https://parks.traviscountytx.gov/parks/hamilton-pool-preserve) is a wonderful swimming hole and hiking area - no pets allowed.  $8 per vehicle, 8 people max.
 
 ### Newspapers/magazines/newsletters
 - [Burnet Bulletin](https://www.burnetbulletin.com/Calendar)
@@ -156,6 +157,7 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Austin Russian Theatre](https://austinrussiantheatre.org/)
 - [Russian Cultural Center](https://russianaustin.com/)
 - [Borderless European Market (BEM)](https://www.bemaustin.com/)
+- [Russian School of Austin](https://russianschoolofaustin.org/%d0%a0%d1%83%d1%81%d1%81%d0%ba%d0%b8%d0%b9-%d1%8f%d0%b7%d1%8b%d0%ba-%d0%b8-%d1%87%d1%82%d0%b5%d0%bd%d0%b8%d0%b5-Russian-language-and-reading/) -- Russian language class on Sundays
 
 ### Jewish
 - [Congregation Shir Ami](https://shir-ami.com/) - Reform - 3315 El Salido Pkwy, Cedar Park, TX 78613 - closest to Smithwick
