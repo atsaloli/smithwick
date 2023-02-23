@@ -34,6 +34,7 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
   - [Burnet County Rodeo](https://www.facebook.com/groups/187351853459/)
   - [Spartan Race at Reveille Park Ranch](https://www.rprtexas.com/)
   - Memorial Day: [Hill Country Ruck for the Fallen](https://www.facebook.com/groups/469564850784352/events)
+  - [Liberty Hill Fair and Rodeo](https://libertyhillfairandrodeo.com/)
 - June
   - [Summer Powwow](https://www.facebook.com/Texas-Indian-Heritage-Association-TIHA-191395009943/events/?ref=page_internal)
   - [Blanco Lavender Festival](https://www.blancolavenderfest.com/) -- service animals only, no pets
