@@ -176,9 +176,11 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Chabad of South Austin](http://jewishsouthaustin.com/) - 7331 Pusch Ridge Loop, Austin, TX 78749
 
 ### Service Providers
+
 - [Hill Country Hedgehogs and Pet Boarding](https://www.hillcountryhedgehogsandpetboarding.com/)
 - Burnet County Reuse and Recycle Center / Waste Transfer Station - 2411 Ranch Road 963, Burnet, Texas 78611. Phone: 737-747-6000. Hours:  Monday-Friday 7am - 4pm
 - [Bloodhound Wildlife Management](https://www.bloodhoundwildlifemanagement.com/)
+- [Elwartowski Chiropractic](http://hstrial-elwartowskichiro.homestead.com/index.html)
 
 ### Marble Falls govt
 - [Marble Falls Parks and Recreation](https://marblefallsrecreation.com/)
