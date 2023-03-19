@@ -174,7 +174,9 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Texas Hillel](https://texashillel.org) - Community center for the 4,000+ Jewish students at The University of Texas at Austin
 - [Chabad of Austin](http://www.chabadaustin.com/) - 3500 Hyridge Dr, Austin, TX 78759
 - [Chabad of South Austin](http://jewishsouthaustin.com/) - 7331 Pusch Ridge Loop, Austin, TX 78749
-- [The Shuk - Kosher Market](https://theshuktexas.com/) - 13450 Research Blvd, #229, Austin, TX, United States, Texas - (512) 876-0028 - theshuktexas@gmail.com
+- Jewish stores
+  - [The Shuk - Kosher Market](https://theshuktexas.com/) - 13450 Research Blvd, #229, Austin, TX, United States, Texas - (512) 876-0028 - theshuktexas@gmail.com
+  - The Kosher Store at H-E-B on Village Center Dr.
 
 
 
