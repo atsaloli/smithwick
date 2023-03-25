@@ -215,3 +215,6 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 ### Eclipse
 - [Hill Country Alliance - Eclipse Portal](https://hillcountryalliance.org/eclipse/)
+
+### Politics
+- [Burnet County polling center locations](https://burnetcountyelections.com/polling-locations/)
