@@ -179,6 +179,9 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
   - The Kosher Store at H-E-B on Village Center Dr.
 
 
+### Other Churches and Temples
+
+- [Sikh](https://austingurdwara.com/)
 
 ### Service Providers
 
