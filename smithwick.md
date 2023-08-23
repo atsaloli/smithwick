@@ -53,6 +53,7 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
   - [BLANCO COUNTY FAIR AND RODEO](https://festivalnet.com/60467/Johnson-City-Texas/State-Fairs/Blanco-County-Fair-and-Rodeo)
 - September
   - [Oatmeal Festival](https://oatmealfestival.org/)
+  - [Comal County Fair & Rodeo](https://www.comalcountyfair.org/) New Braunfels, TX
 - October
   - [Main St. Car Show](https://highlandlakeskiwanis.org/car-show)
   - [Texas Renaissance Festival](https://www.texrenfest.com/)
