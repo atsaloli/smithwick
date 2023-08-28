@@ -1,4 +1,4 @@
-# Greater Smithwick
+# Greater Smithwick Area Events and Resources
 
 Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [LinkedIn](https://www.linkedin.com/in/atsaloli/)
 
@@ -186,6 +186,17 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 ### Service Providers
 
+#### Equipment Rental
+- Home Depot
+- [Rent Equip](https://www.getrentequip.com/) (512) 452-4143 - 3053 US-281, Marble Falls Texas 78654
+
+#### Well Drilling
+
+- [Magill Drilling and Water Well Service](https://www.magilldrilling.com/)
+- [Walden Drilling](https://waldendrilling.com/)
+
+#### Misc
+
 - [Hill Country Hedgehogs and Pet Boarding](https://www.hillcountryhedgehogsandpetboarding.com/)
 - Burnet County Reuse and Recycle Center / Waste Transfer Station 
   2411 Ranch Road 963, Burnet, Texas 78611. 
@@ -194,10 +205,6 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Bloodhound Wildlife Management](https://www.bloodhoundwildlifemanagement.com/)
 - [Elwartowski Chiropractic](http://hstrial-elwartowskichiro.homestead.com/index.html)
 
-#### Well Drilling
-
-- [Magill Drilling and Water Well Service](https://www.magilldrilling.com/)
-- [Walden Drilling](https://waldendrilling.com/)
 
 ### Marble Falls govt
 - [Marble Falls Parks and Recreation](https://marblefallsrecreation.com/)
