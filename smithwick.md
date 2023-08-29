@@ -90,6 +90,9 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [ASL Night Out](https://www.facebook.com/groups/405806173155173)
 - [Texas Association of the Deaf](https://www.facebook.com/groups/877091289068221)
 
+### Dancing
+- [Country Cuzzins](http://www.countrycuzzins.com/) Square dancing
+
 ### Exotic Animal Parks / Zoos
 - [Reptilandia Reptile Lagoon](https://www.facebook.com/Reptilandiareptilelagoon) is located at 1859 U.S. 281 North in Johnson City. Open Fri-Sun 10 a.m.-5 p.m. Admission is $10.
 - [Exotic Resort Zoo](https://www.zooexotics.com/)
