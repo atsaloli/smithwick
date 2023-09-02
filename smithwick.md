@@ -192,6 +192,7 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 #### Equipment Rental
 - Home Depot
 - [Rent Equip](https://www.getrentequip.com/) (512) 452-4143 - 3053 US-281, Marble Falls Texas 78654
+- [Casaperior](https://casaperior.com/) Kingsland
 
 #### Well Drilling
 
