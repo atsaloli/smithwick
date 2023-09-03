@@ -89,6 +89,7 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Austin Deaf Club](https://www.austindeafclub.org/)
 - [ASL Night Out](https://www.facebook.com/groups/405806173155173)
 - [Texas Association of the Deaf](https://www.facebook.com/groups/877091289068221)
+- [Texas School for the Deaf - Events](https://www.tsd.state.tx.us/apps/events/)
 
 ### Dancing
 - [Country Cuzzins Square Dance Club](http://www.countrycuzzins.com/)
