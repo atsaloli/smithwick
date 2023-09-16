@@ -160,6 +160,7 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 
 ### Russian
+- [Russian Community Library](https://russianaustin.com/library/)
 - [Austin Russian Theatre](https://austinrussiantheatre.org/)
 - [Russian Cultural Center](https://russianaustin.com/)
 - [Borderless European Market (BEM)](https://www.bemaustin.com/)
