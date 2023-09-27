@@ -191,6 +191,14 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 ### Service Providers
 
+#### Roofing
+
+- [HARTCO Roofing](https://www.hartcoroofing.com/) Bo (512) 470-1546 (based in Burnet)
+- [Cornerstone Roofing & Remodeling](https://www.cornerstoneroofingtexas.com/) Jerry 512-796-8685 (based in Horseshoe Bay), Chris
+- [Viking Roofing And Construction](https://www.vikingroofstx.com/) Jason Franks (830) 515-2822 (based in Canyon Lake)
+- Tile Roofing & Building Supply (Paul Verette) 512-755-5561 (no website)
+
+
 #### Equipment Rental
 - Home Depot
 - [Rent Equip](https://www.getrentequip.com/) (512) 452-4143 - 3053 US-281, Marble Falls Texas 78654
