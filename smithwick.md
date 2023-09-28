@@ -195,7 +195,7 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 - [HARTCO Roofing](https://www.hartcoroofing.com/) Bo (512) 470-1546 (based in Burnet)
 - [Cornerstone Roofing & Remodeling](https://www.cornerstoneroofingtexas.com/) Jerry 512-796-8685 (based in Horseshoe Bay), Chris
-- [Viking Roofing And Construction](https://www.vikingroofstx.com/) Jason Franks (830) 515-2822 (based in Canyon Lake)
+- [Viking Roofing And Construction](https://www.vikingroofstx.com/) Jason Franks (830) 515-2822 (based in Canyon Lake), Carolyn
 - Tile Roofing & Building Supply (Paul Verette) 512-755-5561 (no website)
 
 
