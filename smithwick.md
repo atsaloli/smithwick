@@ -94,6 +94,12 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 ### Dancing
 - [Country Cuzzins Square Dance Club](http://www.countrycuzzins.com/)
 
+### Dog Parks
+- Ruff Park
+- Johnson Park
+- [Veterans Memorial Park](https://www.cedarparktexas.gov/Facilities/Facility/Details/Veterans-Memorial-Park-10) 2525 W New Hope Drive, Cedar Park, TX 78613
+
+
 ### Exotic Animal Parks / Zoos
 - [Reptilandia Reptile Lagoon](https://www.facebook.com/Reptilandiareptilelagoon) is located at 1859 U.S. 281 North in Johnson City. Open Fri-Sun 10 a.m.-5 p.m. Admission is $10.
 - [Exotic Resort Zoo](https://www.zooexotics.com/)
