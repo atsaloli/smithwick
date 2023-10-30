@@ -114,6 +114,12 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [VFW Marble Falls](https://www.facebook.com/VFWPost10376/) Canteen: 7 days, 12pm-11pm / Karaoke: Fri's @ 7pm / Live Music on Saturdays / Taco Tuesdays
 - [HILL COUNTRY LAVENDER FARM](https://www.hillcountrylavender.com/) Free.  Thur - Sat  10 AM - 4 PM. 8241 FM 165, BLANCO, TX 78606. Pets ok (on leash).
 
+### Libraries
+
+- Llano county library
+- Austin public library: $120/year
+- Cedar Park public library: $35/year
+
 ### Mushrooms
 - [Enchanted Mushrooms](https://www.enchantedmushrooms.farm) gourmet artisan mushroom farm in Llano. Every Sunday 10:00-2:00 at Pedernales Farmers Market,
 23526 TX HWY-71, Spicewood, TX 78669
