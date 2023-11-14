@@ -91,6 +91,9 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Texas Association of the Deaf](https://www.facebook.com/groups/877091289068221)
 - [Texas School for the Deaf - Events](https://www.tsd.state.tx.us/apps/events/)
 
+### Auto repair and maintenance
+- [Tex R Auto Glass](https://www.facebook.com/p/Tex-R-Auto-Glass-100064084421467/) Randall Niemtschk 830-385-7363 texrautoglass@gmail.com - replacement of auto glass
+
 ### Dancing
 - [Country Cuzzins Square Dance Club](http://www.countrycuzzins.com/)
 
@@ -119,6 +122,7 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [The Falls on the Colorado Museum](https://www.fallsmuseum.org/) (830) 798-2157 - 2001 Broadway Marble Falls, Texas 78654; Hours: Mon-Sat 10am - 2pm
 - [VFW Marble Falls](https://www.facebook.com/VFWPost10376/) Canteen: 7 days, 12pm-11pm / Karaoke: Fri's @ 7pm / Live Music on Saturdays / Taco Tuesdays
 - [HILL COUNTRY LAVENDER FARM](https://www.hillcountrylavender.com/) Free.  Thur - Sat  10 AM - 4 PM. 8241 FM 165, BLANCO, TX 78606. Pets ok (on leash).
+- [Hippie Dippie Holistic Market](https://www.facebook.com/HippieDippieHM) 1250 E. Highway 29, Llano, TX 78643 - HippieDippieHM@yahoo.com
 
 ### Libraries
 
