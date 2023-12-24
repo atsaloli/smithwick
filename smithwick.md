@@ -117,17 +117,16 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Thunder Horse Outfitters](https://thunderhorseoutfitters.com/) $65 for 1.5 hour lesson, at [Reveille Park Ranch](https://www.rprtexas.com/)
 
 ### Massage
-- [Sana Vida](https://sanavida.info/massage/) $110 for 50 minutes
-- [Sage Studio](https://sagestudiomftx-heartshapedhealth.square.site/) $110 for 1 hour
+- [Back and Body Works](https://www.backbodyworksmassage.com/) $100 for 60 min Deep Tissue massage | 325.248.4058 | 1811-A Hwy 281 N. Ste. 4, Marble Falls, TX
+- [Balance Massage](https://www.marblefallsbalance.com/) $100 for 60 min massage | 1510 Hwy 281N, #206 Marble Falls, Texas 78654 | (830) 201-4630 | info@marblefallsbalance.com
 - [Complete Reboot](https://completebodyreboot.com/) emailed to ask re prices
 - [Dean Schwartz RN, DC, ACN](https://dean-schwartz-rndc.business.site/) emailed to ask re prices
-- [Back and Body Works](https://www.backbodyworksmassage.com/) $100 for 60 min Deep Tissue massage | 325.248.4058 | 1811-A Hwy 281 N. Ste. 4, Marble Falls, TX
-- [Moving Forward](https://www.movingforwardtexas.com/) $85 for 60 min customized session | 702 4th St, Located in Spa on 4th, Marble Falls, Texas 78654 | (512) 736-9993 | movingforwardtexas@gmail.com
-- [Balance Massage](https://www.marblefallsbalance.com/) $100 for 60 min massage | 1510 Hwy 281N, #206 Marble Falls, Texas 78654 | (830) 201-4630 | info@marblefallsbalance.com
-- [Massage by Molly](https://www.schedulista.com/schedule/massagebymolly) $80 for 60 min Therapeutic Massage | 1712 B West FM-1431 Unit B Marble Falls, TX  78654 | (512) 731-7348
 - [Dr. Connie](https://www.drconnie.com/services/massage-therapy/) rates? | Chiropractic Family Care of Marble Falls | (830) 613-2305 | 1900 Mormon Mill Rd, Marble Falls, TX 78654
-- [Highland Lakes Health Club]() rates? | 900 Avenue J , Marble Falls , TX , 78654
-
+- [Highland Lakes Health Club](https://business.marblefalls.org/member-directory/Details/highland-lakes-health-club-1576037) sent email to find out rates | 900 Avenue J , Marble Falls , TX , 78654
+- [Massage by Molly](https://www.schedulista.com/schedule/massagebymolly) $80 for 60 min Therapeutic Massage | 1712 B West FM-1431 Unit B Marble Falls, TX  78654 | (512) 731-7348
+- [Moving Forward](https://www.movingforwardtexas.com/) $85 for 60 min customized session | 702 4th St, Located in Spa on 4th, Marble Falls, Texas 78654 | (512) 736-9993 | movingforwardtexas@gmail.com
+- [Sage Studio](https://sagestudiomftx-heartshapedhealth.square.site/) $110 for 1 hour
+- [Sana Vida](https://sanavida.info/massage/) $110 for 50 minutes
 
 ### Misc
 - [Horseshoe Bay Cultural Enrichment Society](https://hsbenrichment.org/)
