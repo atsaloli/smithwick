@@ -122,7 +122,7 @@ Liz_YourFriendlyDogWalker 512-944-4305 | $25 a walk (30 min - 1 hour)
 ### Massage
 - [Back and Body Works](https://www.backbodyworksmassage.com/) $100 for 60 min Deep Tissue massage | 325.248.4058 | 1811-A Hwy 281 N. Ste. 4, Marble Falls, TX
 - [Balance Massage](https://www.marblefallsbalance.com/) $100 for 60 min massage | 1510 Hwy 281N, #206 Marble Falls, Texas 78654 | (830) 201-4630 | info@marblefallsbalance.com
-- [Complete Reboot](https://completebodyreboot.com/) emailed to ask re prices
+- [Complete Reboot](https://completebodyreboot.com/) $100 for 1 hour massage | <completebodyreboot@gmail.com>
 - [Dean Schwartz RN, DC, ACN](https://dean-schwartz-rndc.business.site/) emailed to ask re prices
 - [Dr. Connie](https://www.drconnie.com/services/massage-therapy/) rates? | Chiropractic Family Care of Marble Falls | (830) 613-2305 | 1900 Mormon Mill Rd, Marble Falls, TX 78654
 - [Highland Lakes Health Club](https://business.marblefalls.org/member-directory/Details/highland-lakes-health-club-1576037) sent email to find out rates | 900 Avenue J , Marble Falls , TX , 78654
