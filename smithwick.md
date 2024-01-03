@@ -235,6 +235,12 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Rent Equip](https://www.getrentequip.com/) (512) 452-4143 - 3053 US-281, Marble Falls Texas 78654
 - [Casaperior](https://casaperior.com/) Kingsland
 
+#### Water Delivery
+
+- [Waterboy Bulk Water Delivery](https://www.waterboywater.com/burnet-county-bulk-water-delivery.php) - potable water
+- [Frontier Bulk Water](https://frontierbulkwater.com/) they deliver 2,000 gallons at a time, and they charge $240 a go
+
+
 #### Well Drilling
 
 - [Magill Drilling and Water Well Service](https://www.magilldrilling.com/)
