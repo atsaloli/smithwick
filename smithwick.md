@@ -97,6 +97,10 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 ### Dancing
 - [Country Cuzzins Square Dance Club](http://www.countrycuzzins.com/)
 
+### Dog Boarding
+
+- [Woof Pack Lodge](https://woofpacklodge.net/)  $185/night for 3 dogs
+
 ### Dog Parks
 - Ruff Park
 - Johnson Park
@@ -104,7 +108,8 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 
 ### Dog Walking
 
-Liz_YourFriendlyDogWalker 512-944-4305 | $25 a walk (30 min - 1 hour)
+- Liz_YourFriendlyDogWalker 512-944-4305 | $25 a walk (30 min - 1 hour)
+- Daisy M.
 
 ### Exotic Animal Parks / Zoos
 - [Reptilandia Reptile Lagoon](https://www.facebook.com/Reptilandiareptilelagoon) is located at 1859 U.S. 281 North in Johnson City. Open Fri-Sun 10 a.m.-5 p.m. Admission is $10.
