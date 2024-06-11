@@ -303,6 +303,7 @@ Phone: +1 830 693 4055
 - [Cottonwood Shores Good Neighbors](https://www.facebook.com/groups/3168915280057120)
 - [Oatmeal TX Neighbors](https://www.facebook.com/groups/1086689371701409)
 - [Friends of Marble Falls and Horseshoe Bay](https://www.facebook.com/groups/615106805653437)
+- [Burnet County Neighbors](https://www.facebook.com/groups/burnetcountyneighbors/)
 
 ### Eclipse
 - [Hill Country Alliance - Eclipse Portal](https://hillcountryalliance.org/eclipse/)
