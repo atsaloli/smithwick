@@ -304,8 +304,18 @@ Phone: +1 830 693 4055
 - [Oatmeal TX Neighbors](https://www.facebook.com/groups/1086689371701409)
 - [Friends of Marble Falls and Horseshoe Bay](https://www.facebook.com/groups/615106805653437)
 
-### Eclipse
-- [Hill Country Alliance - Eclipse Portal](https://hillcountryalliance.org/eclipse/)
 
-### Politics
+## Politics
 - [Burnet County polling center locations](https://burnetcountyelections.com/polling-locations/)
+
+## Misc
+
+- [Workforce Solutions Rural Capital Area (state agency)](https://workforcesolutionsrca.com/)
+Phone Number: 512-756-6769
+Address: 1001 W BUCHANAN DR STE 1, BURNET, TX 78611
+Website Address
+
+## Meetups
+
+- [Austin Linux Meetup](https://www.meetup.com/linuxaustin/)
+- [Austin DevOps Meetup](https://www.meetup.com/austin-devops/)
