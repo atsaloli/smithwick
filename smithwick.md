@@ -304,6 +304,7 @@ Phone: +1 830 693 4055
 - [Oatmeal TX Neighbors](https://www.facebook.com/groups/1086689371701409)
 - [Friends of Marble Falls and Horseshoe Bay](https://www.facebook.com/groups/615106805653437)
 - [Burnet County Neighbors](https://www.facebook.com/groups/burnetcountyneighbors/)
+- [Everything Liberty Hill, Bertram & Burnet Texas](https://www.facebook.com/groups/1922956481138293)
 
 
 ## Politics
