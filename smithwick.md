@@ -233,6 +233,7 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Cornerstone Roofing & Remodeling](https://www.cornerstoneroofingtexas.com/) Jerry 512-796-8685 (based in Horseshoe Bay), Chris
 - [Viking Roofing And Construction](https://www.vikingroofstx.com/) Jason Franks (830) 515-2822 (based in Canyon Lake), Carolyn
 - Tile Roofing & Building Supply (Paul Verette) 512-755-5561 (no website)
+- Antler Roofing 830-271-5558 antlerroofing.com Coupon in local newspaper for $1,000 in free upgrades with any roof replacement Expires 8/31/24.  HEB735AMJ. (ad in the Highland Lakes Weekly)
 
 
 #### Equipment Rental
