@@ -230,6 +230,9 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 ### Service Providers
 
+#### Insurance
+- www.grissominsurance.com (Kingsland, TX) admin@grissominsurance.com 325-388-4934
+
 #### Roofing
 
 - [HARTCO Roofing](https://www.hartcoroofing.com/) Bo (512) 470-1546 (based in Burnet)
