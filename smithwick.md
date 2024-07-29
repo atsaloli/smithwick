@@ -148,7 +148,10 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 
 - Llano county library
 - Austin public library: $120/year
+  - https://library.austintexas.gov/central-library
 - Cedar Park public library: $35/year
+- Pfluggerville public library: $25/year
+  - https://library.pflugervilletx.gov/my-library/about-the-library/location-hours
 
 ### Mushrooms
 - [Enchanted Mushrooms](https://www.enchantedmushrooms.farm) gourmet artisan mushroom farm in Llano. Every Sunday 10:00-2:00 at Pedernales Farmers Market,
