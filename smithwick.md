@@ -316,6 +316,7 @@ Phone: +1 830 693 4055
 
 ## Politics
 - [Burnet County polling center locations](https://burnetcountyelections.com/polling-locations/)
+- [League of Women Voters -- Hill Country Texas](https://lwvhillcountrytexas.org/content.aspx?page_id=0&club_id=191295)
 
 ## Misc
 
