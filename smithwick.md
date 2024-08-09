@@ -334,3 +334,11 @@ Website Address
 - [Austin Postgres Meetup](https://www.meetup.com/austinpostgres/)
 - [k8s Austin](https://community.cncf.io/kubernetes-austin/)
 - [Austin AWS Users](https://www.meetup.com/austin-aws-users/)
+
+## Burnet County - flood
+
+https://www.burnetcountytexas.org/page/environ.flood
+
+Citizens can obtain information on flood protection assistance from the Burnet County Development Service Department by calling (512) 715-5260
+
+
