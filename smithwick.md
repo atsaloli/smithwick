@@ -314,6 +314,9 @@ Phone: +1 830 693 4055
 - [Everything Liberty Hill, Bertram & Burnet Texas](https://www.facebook.com/groups/1922956481138293)
 
 
+### Misc
+- [Experimental Aircraft Association, Chapter 889, Kingsland[(https://www.facebook.com/share/g/KmTuMYRWYSBMhMiy/)
+
 ## Politics
 - [Burnet County polling center locations](https://burnetcountyelections.com/polling-locations/)
 - [League of Women Voters -- Hill Country Texas](https://lwvhillcountrytexas.org/content.aspx?page_id=0&club_id=191295)
