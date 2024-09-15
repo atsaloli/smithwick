@@ -218,6 +218,7 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Russian School of Austin](https://russianschoolofaustin.org/%d0%a0%d1%83%d1%81%d1%81%d0%ba%d0%b8%d0%b9-%d1%8f%d0%b7%d1%8b%d0%ba-%d0%b8-%d1%87%d1%82%d0%b5%d0%bd%d0%b8%d0%b5-Russian-language-and-reading/) -- Russian language class on Sundays
 
 ### Jewish
+- [Chabad Leander](https://www.jewishleander.com/)
 - [Congregation Shir Ami](https://shir-ami.com/) - Reform - 3315 El Salido Pkwy, Cedar Park, TX 78613 - closest to Smithwick
 - [Congregation Shalom Rav](http://shalomravaustin.com/) - Reconstructionist and Renewal - 7300 Hart Ln, Austin, TX 78731
 - [Congregation Kol Halev](https://kolhalev.org/) - Post-denominational - 9300 I-35, Austin, TX 78748
