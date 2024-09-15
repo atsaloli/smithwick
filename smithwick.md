@@ -92,9 +92,21 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Texas School for the Deaf - Events](https://www.tsd.state.tx.us/apps/events/)
 
 ### Auto repair and maintenance
-- [Tex R Auto Glass](https://www.facebook.com/p/Tex-R-Auto-Glass-100064084421467/) Randall Niemtschk 830-385-7363 texrautoglass@gmail.com - replacement of auto glass
+
+#### Windshield Repair
+- [Tex R Auto Glass](https://www.facebook.com/p/Tex-R-Auto-Glass-100064084421467/) Randall Niemtschk 830-385-7363 texrautoglass@gmail.com - replacement of auto glass - take a picture of the VIN # and text to 830-385-7363 with your name, address and phone number.
+
+#### Annual car safety inspection (required for car registration renewal)
+
+- CHEVROLET BUICK MARBLE FALLS	2301 HIGHWAY 281 NORTH	MARBLE FALLS	830-693-2777  Hours: M-F 7:30 - 6:00 PM, Sat 8:30 - noon
+- JOHNSON SEWELL FORD LINCOLN MERCURY INC	3301 HWY 281 N	MARBLE FALLS	830-693-5577
+- MUSTANG LUBE & BRAKES	1604 RANCH ROAD 1431	MARBLE FALLS	830-201-4596  Hours: m-f 8:00 - 5:30 , Sat 8:00 - 3:30 pm
+- THE PIT STOP	2415 COMMERCE ST STE#1B	MARBLE FALLS	830-613-9111
+- WINGMAN OIL CHANGE CENTERS	2514 HWY 281 NORTH	MARBLE FALLS	830-693-9600  Hours: M-F 8:00 - 5:00, Sat 8:00 - 4:00
+
 
 ### Dancing
+
 - [Country Cuzzins Square Dance Club](http://www.countrycuzzins.com/)
 
 ### Dog Boarding
