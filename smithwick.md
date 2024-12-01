@@ -107,6 +107,12 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - THE PIT STOP	2415 COMMERCE ST STE#1B	MARBLE FALLS	830-613-9111
 
 
+### Banks and Credit Unions
+
+| Name                                                    | Checking Accounts                                 | Interest Rate |
+|---------------------------------------------------------|---------------------------------------------------|---------------|
+| [First United Bank](https://www.firstunitedbank.com/)   | https://www.firstunitedbank.com/checking-accounts | Unknown       |
+
 ### Dancing
 
 - [Country Cuzzins Square Dance Club](http://www.countrycuzzins.com/)
