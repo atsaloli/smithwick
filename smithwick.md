@@ -109,9 +109,12 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 
 ### Banks and Credit Unions
 
-| Name                                                    | Checking Accounts                                 | Interest Rate |
-|---------------------------------------------------------|---------------------------------------------------|---------------|
-| [First United Bank](https://www.firstunitedbank.com/)   | https://www.firstunitedbank.com/checking-accounts | Unknown       |
+| Name                                                    | Checking Accounts                                 | Interest Rate | Phone
+|---------------------------------------------------------|---------------------------------------------------|---------------|------
+| [First United Bank](https://www.firstunitedbank.com/)   | https://www.firstunitedbank.com/checking-accounts | Unknown       | (800) 924-4427
+| [Cadence Bank](https://cadencebank.com/)                | https://cadencebank.com/personal/checking         | Unknown       |
+| [Bank of the West](https://www.bnkwest.com/)            | https://www.bnkwest.com/Personal-Accounts.aspx    | Unknown       | 1-877-310-3511
+
 
 ### Dancing
 
