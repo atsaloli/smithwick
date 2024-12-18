@@ -338,21 +338,16 @@ Phone: +1 830 693 4055
 - [Everything Liberty Hill, Bertram & Burnet Texas](https://www.facebook.com/groups/1922956481138293)
 
 
-### Misc
+### Clubs
 - [Experimental Aircraft Association, Chapter 889, Kingsland[(https://www.facebook.com/share/g/KmTuMYRWYSBMhMiy/)
+- [Toastmaters, Highland Lakes chapter](https://www.facebook.com/HighlandLakesTM/) - 1st and 3rd Monday of the month
 
 ## Politics
 - [Burnet County polling center locations](https://burnetcountyelections.com/polling-locations/)
 - [League of Women Voters -- Hill Country Texas](https://lwvhillcountrytexas.org/content.aspx?page_id=0&club_id=191295)
 
-## Misc
 
-- [Workforce Solutions Rural Capital Area (state agency)](https://workforcesolutionsrca.com/)
-Phone Number: 512-756-6769
-Address: 1001 W BUCHANAN DR STE 1, BURNET, TX 78611
-Website Address
-
-## Meetups
+## Tech Meetups in Austin
 
 - [Austin Linux Meetup](https://www.meetup.com/linuxaustin/)
 - [Austin DevOps Meetup](https://www.meetup.com/austin-devops/)
