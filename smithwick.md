@@ -279,6 +279,7 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 #### Well Drilling
 
+- [Apex Drilling](https://www.apexwaterwells.com/)
 - [Magill Drilling and Water Well Service](https://www.magilldrilling.com/)
 - [Walden Drilling](https://waldendrilling.com/)
 
