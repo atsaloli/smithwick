@@ -254,7 +254,22 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 ### Service Providers
 
+#### Chiropractic
+
+- [Elwartowski Chiropractic](http://hstrial-elwartowskichiro.homestead.com/index.html)
+
+Dr Lambert and Dr. Connie
+https://www.marblefallschiropractic.com/
+404 422 5576 -- Dr Lambert's office text number
+Phone Number:
+(830) 798-8820
+
+Bolton Chiropractic Wellness
+Address: 111 Main St, Marble Falls, TX 78654, United States
+Phone: +1 830 693 4055
+
 #### Insurance
+
 - www.grissominsurance.com (Kingsland, TX) admin@grissominsurance.com 325-388-4934
 
 #### Roofing
@@ -271,6 +286,17 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Rent Equip](https://www.getrentequip.com/) (512) 452-4143 - 3053 US-281, Marble Falls Texas 78654
 - [Casaperior](https://casaperior.com/) Kingsland
 
+#### Waste Disposal
+
+- Burnet County Reuse and Recycle Center / Waste Transfer Station 
+  2411 Ranch Road 963, Burnet, Texas 78611. 
+  Phone: 737-747-6000. 
+  Hours: Monday-Friday 7am - 4pm
+
+- [Reliable Tire Disposal](https://www.reliabletiredisposal.com/)
+
+- [Hill Country Recycling](http://www.hillcountryrecycling.com/) -- pay for scrap metal
+
 #### Water Delivery
 
 - [Waterboy Bulk Water Delivery](https://www.waterboywater.com/burnet-county-bulk-water-delivery.php) - potable water
@@ -286,28 +312,8 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 #### Misc
 
 - [Hill Country Hedgehogs and Pet Boarding](https://www.hillcountryhedgehogsandpetboarding.com/)
-- Burnet County Reuse and Recycle Center / Waste Transfer Station 
-  2411 Ranch Road 963, Burnet, Texas 78611. 
-  Phone: 737-747-6000. 
-  Hours: Monday-Friday 7am - 4pm
 - [Bloodhound Wildlife Management](https://www.bloodhoundwildlifemanagement.com/)
-- [Elwartowski Chiropractic](http://hstrial-elwartowskichiro.homestead.com/index.html)
 
-### Chiro
-
-Dr Lambert
-https://www.marblefallschiropractic.com/
-404 422 5576 -- Dr Lambert's office text number
-Phone Number:
-(830) 798-8820
-
-Dr Connie (above)
-
-polish guy (above)
-
-Bolton Chiropractic Wellness
-Address: 111 Main St, Marble Falls, TX 78654, United States
-Phone: +1 830 693 4055
 
 
 ### Marble Falls govt
