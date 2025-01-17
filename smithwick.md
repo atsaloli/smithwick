@@ -128,6 +128,7 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - Ruff Park
 - Johnson Park
 - [Veterans Memorial Park](https://www.cedarparktexas.gov/Facilities/Facility/Details/Veterans-Memorial-Park-10) 2525 W New Hope Drive, Cedar Park, TX 78613
+- [Dog House Drinkery & Dog Park](https://www.doghousedrinkery.com/) 3800 Co Rd 175, Leander, TX 78641
 
 ### Dog Walking
 
