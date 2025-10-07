@@ -381,6 +381,6 @@ Citizens can obtain information on flood protection assistance from the Burnet C
 
 ## Radio Stations
 
-- [103.9 FM - KBAY](https://kbeyfm.com/)
+- [103.9 FM - KBEY](https://kbeyfm.com/)
 - [106.5 FM - The Hook](https://www.hookfm.com/player/)
 - [102.9 FM - Stinger](https://www.stingerfm.com/player/)
