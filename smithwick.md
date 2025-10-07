@@ -150,6 +150,9 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - Austin public library: $120/year
   - https://library.austintexas.gov/central-library
 - Cedar Park public library: $35/year
+- Georgetown public library: $35/year (includes TexShare card)
+  - https://library.georgetown.org/apply-for-a-library-card/
+  - open Sundays
 - Pfluggerville public library: $25/year
   - https://library.pflugervilletx.gov/my-library/about-the-library/location-hours
 
