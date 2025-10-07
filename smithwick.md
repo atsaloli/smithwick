@@ -92,9 +92,32 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Texas School for the Deaf - Events](https://www.tsd.state.tx.us/apps/events/)
 
 ### Auto repair and maintenance
-- [Tex R Auto Glass](https://www.facebook.com/p/Tex-R-Auto-Glass-100064084421467/) Randall Niemtschk 830-385-7363 texrautoglass@gmail.com - replacement of auto glass
+
+#### Windshield Repair
+- [Tex R Auto Glass](https://www.facebook.com/p/Tex-R-Auto-Glass-100064084421467/) Randall Niemtschk 830-385-7363 texrautoglass@gmail.com - replacement of auto glass - take a picture of the VIN # and text to 830-385-7363 with your name, address and phone number.
+
+#### Annual car safety inspection (required for car registration renewal)
+
+- Ford dealership (JOHNSON SEWELL)
+  - 3301 HWY 281 N MARBLE FALLS
+  - 830-693-5577
+  - Hours: M-F 7:00 AM - 6:00 PM and Sat 7:00 AM - 1:00 PM
+- CHEVROLET BUICK MARBLE FALLS	2301 HIGHWAY 281 NORTH	MARBLE FALLS	830-693-2777  Hours: M-F 7:30 - 6:00 PM, Sat 8:30 - noon
+- MUSTANG LUBE & BRAKES	1604 RANCH ROAD 1431	MARBLE FALLS	830-201-4596  Hours: m-f 8:00 - 5:30 , Sat 8:00 - 3:30 pm
+- THE PIT STOP	2415 COMMERCE ST STE#1B	MARBLE FALLS	830-613-9111
+
+
+### Banks and Credit Unions
+
+| Name                                                    | Checking Accounts                                 | Interest Rate | Phone
+|---------------------------------------------------------|---------------------------------------------------|---------------|------
+| [First United Bank](https://www.firstunitedbank.com/)   | https://www.firstunitedbank.com/checking-accounts | Unknown       | (800) 924-4427
+| [Cadence Bank](https://cadencebank.com/)                | https://cadencebank.com/personal/checking         | Unknown       |
+| [Bank of the West](https://www.bnkwest.com/)            | https://www.bnkwest.com/Personal-Accounts.aspx    | Unknown       | 1-877-310-3511
+
 
 ### Dancing
+
 - [Country Cuzzins Square Dance Club](http://www.countrycuzzins.com/)
 
 ### Dog Boarding
@@ -105,6 +128,7 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - Ruff Park
 - Johnson Park
 - [Veterans Memorial Park](https://www.cedarparktexas.gov/Facilities/Facility/Details/Veterans-Memorial-Park-10) 2525 W New Hope Drive, Cedar Park, TX 78613
+- [Dog House Drinkery & Dog Park](https://www.doghousedrinkery.com/) 3800 Co Rd 175, Leander, TX 78641
 
 ### Dog Walking
 
@@ -209,6 +233,7 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Russian School of Austin](https://russianschoolofaustin.org/%d0%a0%d1%83%d1%81%d1%81%d0%ba%d0%b8%d0%b9-%d1%8f%d0%b7%d1%8b%d0%ba-%d0%b8-%d1%87%d1%82%d0%b5%d0%bd%d0%b8%d0%b5-Russian-language-and-reading/) -- Russian language class on Sundays
 
 ### Jewish
+- [Chabad Leander](https://www.jewishleander.com/)
 - [Congregation Shir Ami](https://shir-ami.com/) - Reform - 3315 El Salido Pkwy, Cedar Park, TX 78613 - closest to Smithwick
 - [Congregation Shalom Rav](http://shalomravaustin.com/) - Reconstructionist and Renewal - 7300 Hart Ln, Austin, TX 78731
 - [Congregation Kol Halev](https://kolhalev.org/) - Post-denominational - 9300 I-35, Austin, TX 78748
@@ -233,18 +258,48 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 ### Service Providers
 
+#### Chiropractic
+
+- [Elwartowski Chiropractic](http://hstrial-elwartowskichiro.homestead.com/index.html)
+
+Dr Lambert and Dr. Connie
+https://www.marblefallschiropractic.com/
+404 422 5576 -- Dr Lambert's office text number
+Phone Number:
+(830) 798-8820
+
+Bolton Chiropractic Wellness
+Address: 111 Main St, Marble Falls, TX 78654, United States
+Phone: +1 830 693 4055
+
+#### Insurance
+
+- www.grissominsurance.com (Kingsland, TX) admin@grissominsurance.com 325-388-4934
+
 #### Roofing
 
 - [HARTCO Roofing](https://www.hartcoroofing.com/) Bo (512) 470-1546 (based in Burnet)
 - [Cornerstone Roofing & Remodeling](https://www.cornerstoneroofingtexas.com/) Jerry 512-796-8685 (based in Horseshoe Bay), Chris
 - [Viking Roofing And Construction](https://www.vikingroofstx.com/) Jason Franks (830) 515-2822 (based in Canyon Lake), Carolyn
 - Tile Roofing & Building Supply (Paul Verette) 512-755-5561 (no website)
+- Antler Roofing 830-271-5558 antlerroofing.com Coupon in local newspaper for $1,000 in free upgrades with any roof replacement Expires 8/31/24.  HEB735AMJ. (ad in the Highland Lakes Weekly)
 
 
 #### Equipment Rental
 - Home Depot
 - [Rent Equip](https://www.getrentequip.com/) (512) 452-4143 - 3053 US-281, Marble Falls Texas 78654
 - [Casaperior](https://casaperior.com/) Kingsland
+
+#### Waste Disposal
+
+- Burnet County Reuse and Recycle Center / Waste Transfer Station 
+  2411 Ranch Road 963, Burnet, Texas 78611. 
+  Phone: 737-747-6000. 
+  Hours: Monday-Friday 7am - 4pm
+
+- [Reliable Tire Disposal](https://www.reliabletiredisposal.com/)
+
+- [Hill Country Recycling](http://www.hillcountryrecycling.com/) -- pay for scrap metal
 
 #### Water Delivery
 
@@ -254,34 +309,15 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 #### Well Drilling
 
+- [Apex Drilling](https://www.apexwaterwells.com/)
 - [Magill Drilling and Water Well Service](https://www.magilldrilling.com/)
 - [Walden Drilling](https://waldendrilling.com/)
 
 #### Misc
 
 - [Hill Country Hedgehogs and Pet Boarding](https://www.hillcountryhedgehogsandpetboarding.com/)
-- Burnet County Reuse and Recycle Center / Waste Transfer Station 
-  2411 Ranch Road 963, Burnet, Texas 78611. 
-  Phone: 737-747-6000. 
-  Hours: Monday-Friday 7am - 4pm
 - [Bloodhound Wildlife Management](https://www.bloodhoundwildlifemanagement.com/)
-- [Elwartowski Chiropractic](http://hstrial-elwartowskichiro.homestead.com/index.html)
 
-### Chiro
-
-Dr Lambert
-https://www.marblefallschiropractic.com/
-404 422 5576 -- Dr Lambert's office text number
-Phone Number:
-(830) 798-8820
-
-Dr Connie (above)
-
-polish guy (above)
-
-Bolton Chiropractic Wellness
-Address: 111 Main St, Marble Falls, TX 78654, United States
-Phone: +1 830 693 4055
 
 
 ### Marble Falls govt
@@ -313,17 +349,17 @@ Phone: +1 830 693 4055
 - [Everything Liberty Hill, Bertram & Burnet Texas](https://www.facebook.com/groups/1922956481138293)
 
 
+### Clubs
+- [Experimental Aircraft Association, Chapter 889, Kingsland](https://www.facebook.com/share/g/KmTuMYRWYSBMhMiy/)
+- [Toastmaters, Highland Lakes chapter](https://www.facebook.com/HighlandLakesTM/) - 1st and 3rd Monday of the month
+- [Burnet County Book Club](https://www.facebook.com/groups/1043659240516554)
+
 ## Politics
 - [Burnet County polling center locations](https://burnetcountyelections.com/polling-locations/)
+- [League of Women Voters -- Hill Country Texas](https://lwvhillcountrytexas.org/content.aspx?page_id=0&club_id=191295)
 
-## Misc
 
-- [Workforce Solutions Rural Capital Area (state agency)](https://workforcesolutionsrca.com/)
-Phone Number: 512-756-6769
-Address: 1001 W BUCHANAN DR STE 1, BURNET, TX 78611
-Website Address
-
-## Meetups
+## Tech Meetups in Austin
 
 - [Austin Linux Meetup](https://www.meetup.com/linuxaustin/)
 - [Austin DevOps Meetup](https://www.meetup.com/austin-devops/)
@@ -332,3 +368,17 @@ Website Address
 - [Austin Postgres Meetup](https://www.meetup.com/austinpostgres/)
 - [k8s Austin](https://community.cncf.io/kubernetes-austin/)
 - [Austin AWS Users](https://www.meetup.com/austin-aws-users/)
+- [OWASP Austin](https://owasp.org/www-chapter-austin/)
+
+## Burnet County - flood
+
+https://www.burnetcountytexas.org/page/environ.flood
+
+Citizens can obtain information on flood protection assistance from the Burnet County Development Service Department by calling (512) 715-5260
+
+
+## Radio Stations
+
+- [103.9 FM - KBAY](https://kbeyfm.com/)
+- [106.5 FM - The Hook](https://www.hookfm.com/player/)
+- [102.9 FM - Stinger](https://www.stingerfm.com/player/)
