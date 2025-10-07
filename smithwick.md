@@ -1,5 +1,7 @@
 # Greater Smithwick Area Events and Resources
 
+<!-- https://atsaloli.gitlab.io/smithwick/ --> 
+
 Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [LinkedIn](https://www.linkedin.com/in/atsaloli/)
 
 ## Events
