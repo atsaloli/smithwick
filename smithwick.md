@@ -118,6 +118,12 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 | [Bank of the West](https://www.bnkwest.com/)            | https://www.bnkwest.com/Personal-Accounts.aspx    | Unknown       | 1-877-310-3511
 
 
+### Bookstores
+
+- [Divine 29](https://weakdayministries.com/bookstore/) - Christian bookstore in Burnet
+- [Bookstore of Marble Falls](https://www.facebook.com/p/Bookstore-of-Marble-Falls-100064569707223/)
+
+
 ### Dancing
 
 - [Country Cuzzins Square Dance Club](http://www.countrycuzzins.com/)
