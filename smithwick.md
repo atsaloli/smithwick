@@ -25,6 +25,7 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
   - [Bluebonnet Airshow](https://www.bluebonnetairshow.com/)
   - [Llano Earth Art Fest](https://www.llanoearthartfest.org/)
 - April
+  - [Llano Crawfish Open](https://llanocrawfishopen.com) - The 4th Friday & Saturday of April - no pets
   - [Llano Fiddle Fest](http://www.llanofiddlefest.com/) - no pets, service animals only, free admission
   - [Wiener Dog Races in Buda](https://budalions.com/)
   - Lampasas Riata Roundup (Rodeo) at 2351 FM 580, Lampasas, TX
