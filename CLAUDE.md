@@ -14,4 +14,4 @@ The traditional US phone number format should be used for all phone numbers:
 
 ### Addresses
 
-For addresses, please link to the Google Maps listing for the entity in question if you can find it, otherwise link to the address itself.
+For addresses, please link to the Google Maps listing for the entity in question if you can find it, otherwise link to the address itself in Google Maps, e.g., for 18568 FM 1431, Jonestown, TX 78645 link to  https://maps.google.com/?q=18568+FM+1431,+Jonestown,+TX+78645
