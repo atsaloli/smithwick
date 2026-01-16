@@ -124,6 +124,7 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 
 - [Divine 29](https://weakdayministries.com/bookstore/) - Christian bookstore in Burnet
 - [Bookstore of Marble Falls](https://www.facebook.com/p/Bookstore-of-Marble-Falls-100064569707223/)
+- [The Painted Porch](https://www.thepaintedporch.com) - Ryan Holiday's bookstore in Bastrop, TX (almost 2 hours drive)
 
 
 ### Dancing
