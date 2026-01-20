@@ -150,6 +150,10 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - [Reptilandia Reptile Lagoon](https://www.facebook.com/Reptilandiareptilelagoon) is located at 1859 U.S. 281 North in Johnson City. Open Fri-Sun 10 a.m.-5 p.m. Admission is $10.
 - [Exotic Resort Zoo](https://www.zooexotics.com/)
 
+### First Aid and CPR Training
+
+- [CPR and First Aid Training](https://www.marblefallsareaems.org/cpr-and-first-aid-training) -- free of charge to the community, at Marble Falls Area EMS station
+
 ### Hiking
 - Shaffer Bend
 - [Reveille Park Ranch](https://www.rprtexas.com/) - dogs allowed on leash. Bring cash or check for fees ($10 per person). Bring drinking water.
