@@ -131,6 +131,11 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 
 - [Country Cuzzins Square Dance Club](http://www.countrycuzzins.com/)
 
+### Dinosaur Tracks
+
+- [Heritage Museum of the Texas Hill Country](https://www.theheritagemuseum.com/) - [4831 FM 2673, Canyon Lake, TX 78133](https://maps.google.com/?q=4831+FM+2673,+Canyon+Lake,+TX+78133) - Over 200 dinosaur footprints and 28 trackways preserved in limestone, dating back 110 million years. Tracks are covered by a shaded pavilion with a boardwalk trail.
+- [Canyon Lake Gorge](https://canyongorgetours.com/) - Guided tours through a gorge carved by the 2002 flood, revealing dinosaur tracks, fossils, and limestone layers from an ancient sea. $10/person, ages 7+. Reservations required.
+
 ### Dog Boarding
 
 - [Woof Pack Lodge](https://woofpacklodge.net/)  $185/night for 3 dogs
