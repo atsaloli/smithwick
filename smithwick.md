@@ -390,11 +390,10 @@ Phone: +1 830 693 4055
 - [Austin AWS Users](https://www.meetup.com/austin-aws-users/)
 - [OWASP Austin](https://owasp.org/www-chapter-austin/)
 
-## Burnet County - flood
+## Floods / Weather
 
-https://www.burnetcountytexas.org/page/environ.flood
-
-Citizens can obtain information on flood protection assistance from the Burnet County Development Service Department by calling (512) 715-5260
+- [ATXFloods.com](https://www.atxfloods.com/) - provides flooded road closure information for Austin and surrounding Central Texas communities
+- [Burnet County Flood Information](https://www.burnetcountytexas.org/page/environ.flood) - Citizens can obtain information on flood protection assistance from the Burnet County Development Service Department by calling (512) 715-5260
 
 
 ## Radio Stations
