@@ -71,6 +71,22 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
   - [Christmas at Fort Croghan](https://www.fortcroghan.com/) - 703 Buchanan Drive, Burnet
   - [Burnet's Christmas on the Square](https://www.burnetchamber.org/christmas-in-burnet/)
 
+### 2026 Rodeos and Demolition Derbies
+
+- April
+  - [Burnet Bluebonnet Festival Demolition Derby](https://bluebonnetfestival.org/events/destruction-derby/) — April 11, 2026, 6 PM at Burnet County Fairgrounds, [1301 Houston Clinton Dr, Burnet](https://maps.google.com/?q=1301+Houston+Clinton+Dr,+Burnet,+TX+78611). $20 ages 12+, $10 ages 6–11, under 5 free. BYOB with $10 cooler fee (no glass).
+- May
+  - [Burnet County Rodeo](https://www.burnetcountyrodeo.com/) — May 8–9, 2026, gates open 5:30 PM, rodeo 7 PM at [1301 Houston Clinton Dr, Burnet](https://maps.google.com/?q=1301+Houston+Clinton+Dr,+Burnet,+TX+78611). $20 adults, $10 ages 6–9, under 5 free. Team roping pre-event May 6.
+  - [Liberty Hill Pro Rodeo](https://libertyhillprorodeo.com/) (PRCA) — May 14–16, 2026, gates open 5 PM, rodeo 7:30 PM at [Harvest Ranch Arena, 8355 Ranch Rd 1869, Liberty Hill](https://maps.google.com/?q=8355+Ranch+Road+1869,+Liberty+Hill,+TX+78642).
+- June
+  - [Llano Open Pro Rodeo](https://www.llanochamber.org/calendar/llano-open-pro-rodeo) — June 6–7, 2026, 8 PM nightly at [John L. Kuykendall Event Center and Arena, Llano](https://maps.google.com/?q=John+L.+Kuykendall+Event+Center,+Llano,+TX). $10 adults, $5 kids.
+- July
+  - [Marble Falls Rodeo](https://www.facebook.com/marblefallsrodeo/) — July 17–19, 2026 (3rd weekend in July) at [Charley Taylor Arena, 3053 US-281 South, Marble Falls](https://maps.google.com/?q=3053+US-281+South,+Marble+Falls,+TX+78654).
+- August
+  - [Blanco County Fair & Rodeo](https://www.bcfra.org/) — August 21–22, 2026 (3rd full weekend in August) at [619 N US-281, Johnson City](https://maps.google.com/?q=619+N+US-281,+Johnson+City,+TX+78636). Parade 10 AM, fairgrounds open 11 AM, rodeo 8 PM Saturday.
+- October
+  - [Burnet Demolition Derby](https://www.burnetchamber.org/event/demolition-derby-6/) — October 2026 (date TBD; typically 2nd Saturday) at [1301 Houston Clinton Dr, Burnet](https://maps.google.com/?q=1301+Houston+Clinton+Dr,+Burnet,+TX+78611). $20 ages 10+, $10 ages 6–9, under 5 free.
+
 ## Resources
 
 ### 4H
