@@ -71,7 +71,7 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
   - [Christmas at Fort Croghan](https://www.fortcroghan.com/) - 703 Buchanan Drive, Burnet
   - [Burnet's Christmas on the Square](https://www.burnetchamber.org/christmas-in-burnet/)
 
-### 2026 Rodeos and Demolition Derbies
+## 2026 Rodeos and Demolition Derbies
 
 - April
   - [Burnet Bluebonnet Festival Demolition Derby](https://bluebonnetfestival.org/events/destruction-derby/) — April 11, 2026, 6 PM at Burnet County Fairgrounds, [1301 Houston Clinton Dr, Burnet](https://maps.google.com/?q=1301+Houston+Clinton+Dr,+Burnet,+TX+78611). $20 ages 12+, $10 ages 6–11, under 5 free. BYOB with $10 cooler fee (no glass).
