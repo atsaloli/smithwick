@@ -395,6 +395,12 @@ Phone: +1 830 693 4055
 - [League of Women Voters -- Hill Country Texas](https://lwvhillcountrytexas.org/content.aspx?page_id=0&club_id=191295)
 
 
+## Tech Conferences
+
+- [RBQ Conf](https://rbqconf.com) — March 26-27, 2026 — Capital Factory, 701 Brazos St, Austin, TX
+- [DevOps Days Austin](https://devopsdays.org/events/2026-austin/welcome/) — May 5-6, 2026 — TCEA Conference Center, 3100 Alvin Devane Blvd Bldg B, Austin, TX
+- [Texas Linux Fest](https://2026.texaslinuxfest.org/) — November 6-7, 2026 — UT Commons, Austin, TX
+
 ## Tech Meetups in Austin
 
 - [Austin Linux Meetup](https://www.meetup.com/linuxaustin/)
