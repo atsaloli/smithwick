@@ -416,7 +416,7 @@ Phone: +1 830 693 4055
 
 - [ATXFloods.com](https://www.atxfloods.com/) - provides flooded road closure information for Austin and surrounding Central Texas communities
 - [Burnet County Flood Information](https://www.burnetcountytexas.org/page/environ.flood) - Citizens can obtain information on flood protection assistance from the Burnet County Development Service Department by calling (512) 715-5260
-- [LCRA Water Gauge - Hamilton Creek](https://hydromet.lcra.org/Charts/?siteNumber=3018&siteType=flow&agency=LCRA) - real-time flow chart for Hamilton Creek (site #3018), with time ranges from past hour to past 2 weeks
+- [LCRA Water Gauge - Hamilton Creek](https://hydromet.lcra.org/Charts/?siteNumber=3018&siteType=flow&agency=LCRA)
 
 
 ## Radio Stations
