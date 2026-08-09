@@ -175,6 +175,10 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 
 - [CPR and First Aid Training](https://www.marblefallsareaems.org/cpr-and-first-aid-training) -- free of charge to the community, at Marble Falls Area EMS station
 
+### Gliding
+
+- [Fault Line Flyers Glider Club](https://www.faultlineflyers.com/) - not-for-profit glider club at [2409 Co Rd 210, Bertram, TX](https://maps.google.com/?q=2409+Co+Rd+210,+Bertram,+TX) - [(512) 489-0460](tel:512-489-0460) - soar.flf@gmail.com. Introductory flights are $125 for about 30 minutes, on the first Saturday of each month, weather permitting. Pilot weight limits: 110-230 pounds. $5 off for pre-scheduled groups of 5 or more, $10 off for students. The club flies every weekend; gates open at 11 AM and flying stops by 4 PM.
+
 ### Hiking
 - Shaffer Bend
 - [Reveille Park Ranch](https://www.rprtexas.com/) - dogs allowed on leash. Bring cash or check for fees ($10 per person). Bring drinking water.
