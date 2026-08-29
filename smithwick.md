@@ -179,6 +179,10 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 
 - [Fault Line Flyers Glider Club](https://www.faultlineflyers.com/) - not-for-profit glider club at [2409 Co Rd 210, Bertram, TX](https://maps.google.com/?q=2409+Co+Rd+210,+Bertram,+TX) - [(512) 489-0460](tel:512-489-0460) - soar.flf@gmail.com. Introductory flights are $125 for about 30 minutes, on the first Saturday of each month, weather permitting. Pilot weight limits: 110-230 pounds. $5 off for pre-scheduled groups of 5 or more, $10 off for students. The club flies every weekend; gates open at 11 AM and flying stops by 4 PM.
 
+### Gun Clubs
+
+- [Austin Gun Club](https://austingunclub.com/) - private gun club and hunting preserve in the Texas Hill Country offering trap, skeet, sporting clays, pistol, and long-range rifle shooting, at [2901 County Road 206, Lampasas, TX](https://maps.google.com/?q=2901+County+Road+206,+Lampasas,+TX) - [(512) 394-4419](tel:512-394-4419). Members-only facility; public visitors by invitation.
+
 ### Hiking
 - Shaffer Bend
 - [Reveille Park Ranch](https://www.rprtexas.com/) - dogs allowed on leash. Bring cash or check for fees ($10 per person). Bring drinking water.
