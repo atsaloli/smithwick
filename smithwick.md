@@ -401,6 +401,7 @@ Phone: +1 830 693 4055
 - [Experimental Aircraft Association, Chapter 889, Kingsland](https://www.facebook.com/share/g/KmTuMYRWYSBMhMiy/)
 - [Toastmaters, Highland Lakes chapter](https://www.facebook.com/HighlandLakesTM/) - 1st and 3rd Monday of the month
 - [Burnet County Book Club](https://www.facebook.com/groups/1043659240516554)
+- [Native Plant Society of Texas, Highland Lakes Chapter](https://npsot.org/chapters/highland-lakes) - meets 5 times a year (January, March, May, September, November) on the third Saturday, 1:00-3:00 PM, at the [Marble Falls Library](https://maps.google.com/?q=101+Main+Street,+Marble+Falls,+TX+78654); short business meeting plus a speaker on a native-plant topic; open to the public. Also runs field trips and plant sales. Covers Burnet/Marble Falls/Kingsland.
 
 ## Politics
 - [Burnet County polling center locations](https://burnetcountyelections.com/polling-locations/)
