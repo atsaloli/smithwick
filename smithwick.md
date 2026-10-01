@@ -290,11 +290,10 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Texas Hillel](https://texashillel.org) - Community center for the 4,000+ Jewish students at The University of Texas at Austin
 - [Chabad of Austin](http://www.chabadaustin.com/) - [3500 Hyridge Dr, Austin, TX 78759](https://maps.google.com/?q=3500+Hyridge+Dr,+Austin,+TX+78759)
 - [Chabad of South Austin](http://jewishsouthaustin.com/) - [7331 Pusch Ridge Loop, Austin, TX 78749](https://maps.google.com/?q=7331+Pusch+Ridge+Loop,+Austin,+TX+78749)
-- Community organizations and events
-  - [Shalom Austin / Dell JCC](https://shalomaustin.org/community-events/) - community events calendar - [Dell Jewish Community Campus, 7300 Hart Ln, Austin, TX 78731](https://maps.google.com/?q=7300+Hart+Ln,+Austin,+TX+78731)
-  - [Schusterman Center for Jewish Studies](https://liberalarts.utexas.edu/scjs/) (UT Austin) - lectures and events; check for the current semester's schedule - [305 E 23rd St, Austin, TX 78712](https://maps.google.com/?q=305+E+23rd+St,+Austin,+TX+78712)
-  - [Austin Chapter of Hadassah](https://www.hadassah.org/region/greater-southwest) - listed under Hadassah's Greater Southwest region
-  - [Keshet Austin](https://www.keshetonline.org/our-work-community-mobilization-keshet-in-the-states-texas/) - LGBTQ+ equality in Jewish life (Texas)
+- [Shalom Austin / Dell JCC](https://shalomaustin.org/community-events/) - community events calendar - [Dell Jewish Community Campus, 7300 Hart Ln, Austin, TX 78731](https://maps.google.com/?q=7300+Hart+Ln,+Austin,+TX+78731)
+- [Schusterman Center for Jewish Studies](https://liberalarts.utexas.edu/scjs/) (UT Austin) - lectures and events; check for the current semester's schedule - [305 E 23rd St, Austin, TX 78712](https://maps.google.com/?q=305+E+23rd+St,+Austin,+TX+78712)
+- [Austin Chapter of Hadassah](https://www.hadassah.org/region/greater-southwest) - listed under Hadassah's Greater Southwest region
+- [Keshet Austin](https://www.keshetonline.org/our-work-community-mobilization-keshet-in-the-states-texas/) - LGBTQ+ equality in Jewish life (Texas)
 - Jewish stores
   - [The Shuk - Kosher Market](https://theshuktexas.com/) - [13450 Research Blvd, #229, Austin, TX](https://maps.google.com/?q=13450+Research+Blvd+%23229,+Austin,+TX) - (512) 876-0028 - theshuktexas@gmail.com
   - The Kosher Store at H-E-B on Village Center Dr.
