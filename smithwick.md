@@ -278,21 +278,25 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 
 ### Jewish
 - [Chabad Leander](https://www.jewishleander.com/)
-- [Congregation Shir Ami](https://shir-ami.com/) - Reform - 3315 El Salido Pkwy, Cedar Park, TX 78613 - closest to Smithwick
-- [Congregation Shalom Rav](http://shalomravaustin.com/) - Reconstructionist and Renewal - 7300 Hart Ln, Austin, TX 78731
-- [Congregation Kol Halev](https://kolhalev.org/) - Post-denominational - 9300 I-35, Austin, TX 78748
-- [Temple Beth Shalom](http://www.bethshalomaustin.org/) - Reform - 7300 Hart Ln, Austin, TX 78731
-- [Congregation Agudas Achim](https://theaustinsynagogue.org/) - Conservative - 7300 Hart Ln, Austin, TX 78731
+- [Congregation Shir Ami](https://shir-ami.com/) - Reform - [3315 El Salido Pkwy, Cedar Park, TX 78613](https://maps.google.com/?q=3315+El+Salido+Pkwy,+Cedar+Park,+TX+78613) - closest to Smithwick
+- [Congregation Shalom Rav](http://shalomravaustin.com/) - Reconstructionist and Renewal - [7300 Hart Ln, Austin, TX 78731](https://maps.google.com/?q=7300+Hart+Ln,+Austin,+TX+78731)
   - [Shalom Rav on Facebook](https://www.facebook.com/CongregationShalomRav/)
-- [Congregation Beth El](https://bethelaustin.org/) - Conservative - 8902 Mesa Dr, Austin, TX 78759
-  - [Beth El on Facebook](https://www.facebook.com/ShirAmiTX/)
-- [Congregation Tiferet Israel](https://www.tiferetaustin.org/) - Orthodox - 7300 Hart Ln, Austin, TX 78731
-- [Congregation Beth Israel](https://bethisrael.org/) - Reform - 3901 Shoal Creek Blvd, Austin, TX 78756
+- [Congregation Kol Halev](https://kolhalev.org/) - Post-denominational - [9300 I-35, Austin, TX 78748](https://maps.google.com/?q=9300+I-35,+Austin,+TX+78748)
+- [Temple Beth Shalom](http://www.bethshalomaustin.org/) - Reform - [7300 Hart Ln, Austin, TX 78731](https://maps.google.com/?q=7300+Hart+Ln,+Austin,+TX+78731)
+- [Congregation Agudas Achim](https://theaustinsynagogue.org/) - Conservative - [7300 Hart Ln, Austin, TX 78731](https://maps.google.com/?q=7300+Hart+Ln,+Austin,+TX+78731)
+- [Congregation Beth El](https://bethelaustin.org/) - Conservative - [8902 Mesa Dr, Austin, TX 78759](https://maps.google.com/?q=8902+Mesa+Dr,+Austin,+TX+78759)
+- [Congregation Tiferet Israel](https://www.tiferetaustin.org/) - Orthodox - [7300 Hart Ln, Austin, TX 78731](https://maps.google.com/?q=7300+Hart+Ln,+Austin,+TX+78731)
+- [Congregation Beth Israel](https://bethisrael.org/) - Reform - [3901 Shoal Creek Blvd, Austin, TX 78756](https://maps.google.com/?q=3901+Shoal+Creek+Blvd,+Austin,+TX+78756)
 - [Texas Hillel](https://texashillel.org) - Community center for the 4,000+ Jewish students at The University of Texas at Austin
-- [Chabad of Austin](http://www.chabadaustin.com/) - 3500 Hyridge Dr, Austin, TX 78759
-- [Chabad of South Austin](http://jewishsouthaustin.com/) - 7331 Pusch Ridge Loop, Austin, TX 78749
+- [Chabad of Austin](http://www.chabadaustin.com/) - [3500 Hyridge Dr, Austin, TX 78759](https://maps.google.com/?q=3500+Hyridge+Dr,+Austin,+TX+78759)
+- [Chabad of South Austin](http://jewishsouthaustin.com/) - [7331 Pusch Ridge Loop, Austin, TX 78749](https://maps.google.com/?q=7331+Pusch+Ridge+Loop,+Austin,+TX+78749)
+- Community organizations and events
+  - [Shalom Austin / Dell JCC](https://shalomaustin.org/community-events/) - community events calendar - [Dell Jewish Community Campus, 7300 Hart Ln, Austin, TX 78731](https://maps.google.com/?q=7300+Hart+Ln,+Austin,+TX+78731)
+  - [Schusterman Center for Jewish Studies](https://liberalarts.utexas.edu/scjs/) (UT Austin) - lectures and events; check for the current semester's schedule - [305 E 23rd St, Austin, TX 78712](https://maps.google.com/?q=305+E+23rd+St,+Austin,+TX+78712)
+  - [Austin Chapter of Hadassah](https://www.hadassah.org/region/greater-southwest) - listed under Hadassah's Greater Southwest region
+  - [Keshet Austin](https://www.keshetonline.org/our-work-community-mobilization-keshet-in-the-states-texas/) - LGBTQ+ equality in Jewish life (Texas)
 - Jewish stores
-  - [The Shuk - Kosher Market](https://theshuktexas.com/) - 13450 Research Blvd, #229, Austin, TX, United States, Texas - (512) 876-0028 - theshuktexas@gmail.com
+  - [The Shuk - Kosher Market](https://theshuktexas.com/) - [13450 Research Blvd, #229, Austin, TX](https://maps.google.com/?q=13450+Research+Blvd+%23229,+Austin,+TX) - (512) 876-0028 - theshuktexas@gmail.com
   - The Kosher Store at H-E-B on Village Center Dr.
 
 
