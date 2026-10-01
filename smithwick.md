@@ -277,7 +277,7 @@ Well-behaved dogs on a leash are welcome at all programs except night hikes.
 - [Russian School of Austin](https://russianschoolofaustin.org/%d0%a0%d1%83%d1%81%d1%81%d0%ba%d0%b8%d0%b9-%d1%8f%d0%b7%d1%8b%d0%ba-%d0%b8-%d1%87%d1%82%d0%b5%d0%bd%d0%b8%d0%b5-Russian-language-and-reading/) -- Russian language class on Sundays
 
 ### Jewish
-- [Chabad Leander](https://www.jewishleander.com/)
+- [Chabad of Leander](https://www.jewishleander.com/) - Chabad - Rabbi Shmuel and Nechama Fradel Levertov - [Leander, TX](https://maps.google.com/?q=Leander,+TX) - (737) 786-5770 - serves Leander and Liberty Hill
 - [Congregation Shir Ami](https://shir-ami.com/) - Reform - [3315 El Salido Pkwy, Cedar Park, TX 78613](https://maps.google.com/?q=3315+El+Salido+Pkwy,+Cedar+Park,+TX+78613) - closest to Smithwick
 - [Congregation Shalom Rav](http://shalomravaustin.com/) - Reconstructionist and Renewal - [7300 Hart Ln, Austin, TX 78731](https://maps.google.com/?q=7300+Hart+Ln,+Austin,+TX+78731)
   - [Shalom Rav on Facebook](https://www.facebook.com/CongregationShalomRav/)
