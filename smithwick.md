@@ -224,6 +224,10 @@ lano county.  4th weekend of October -- Saturday, October 22, 2022 9:00 AM  5:00
 - Pfluggerville public library: $25/year
   - https://library.pflugervilletx.gov/my-library/about-the-library/location-hours
 
+### Movie Theaters
+
+- [EVO Cinemas Belterra Village + IMAX](https://www.evo.co/venueinfo/Belterra) - IMAX with Laser (opened December 2023), luxury recliners, in-theater dining (burgers, pizza, nachos, sandwiches) - [166 Hargraves Dr, Austin, TX 78737](https://maps.google.com/?q=166+Hargraves+Dr,+Austin,+TX+78737) (Belterra Village, off Hwy 290 near Dripping Springs) - [(512) 884-5183](tel:512-884-5183)
+
 ### Mushrooms
 - [Enchanted Mushrooms](https://www.enchantedmushrooms.farm) gourmet artisan mushroom farm in Llano. Every Sunday 10:00-2:00 at Pedernales Farmers Market,
 23526 TX HWY-71, Spicewood, TX 78669
